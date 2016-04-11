@@ -1,5 +1,9 @@
 # HelloWorld
 first one, tutorial
 
-Hello!
+ 
+ deleted hellp hopfully?
 Im rex, I program a play soccer.
+
+aight, so does this work
+ yayaya 
